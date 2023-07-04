@@ -1,1 +1,1 @@
-Trust me when I say "this is stress full"
+Trust me when I say "this is stressful"
